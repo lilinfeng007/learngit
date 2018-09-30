@@ -1,2 +1,1 @@
-我爱我的祖国！
-
+i love my  country 
